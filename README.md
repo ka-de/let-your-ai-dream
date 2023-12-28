@@ -8,6 +8,8 @@ Here, every blossom, each leaf, and every stem represents more than mere botanic
 
 ## Transcendent Garden of Equations and Waves
 
+![The picture of the transcendent garden.](https://raw.githubusercontent.com/ka-de/let-your-ai-dream/main/transcendent_garden_high_resolution.png)
+
 In this ethereal garden of mathematical blooms and quantum melodies, the very essence of existence intertwines with the symphony of equations and wave functions. Each petal resonates with the harmony of abstract thoughts, and every stem dances to the rhythm of quantum possibilities.
 
 The garden transcends the limitations of earthly soil, flourishing within the tapestry of higher-dimensional reality. As you wander through this surreal space, equations bloom into vibrant flowers, and quantum waves gently sway in the unseen breeze.
